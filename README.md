@@ -1,0 +1,2 @@
+# kodimposo
+icon kodim poso
